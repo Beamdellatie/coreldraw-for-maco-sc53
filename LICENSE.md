@@ -1,4 +1,4 @@
-
+Get the ultimate CorelDRAW for macOS script with CorelDRAW for macOS rare Script: layer styles & asset management. Featuring layer styles and asset management, it's the best
 
 
 
